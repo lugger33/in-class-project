@@ -1,3 +1,3 @@
 # Team notes
 
-Notes from our team.
+Team check-in: Tuesday at 2 PM.
