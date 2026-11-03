@@ -1,3 +1,3 @@
 # Team notes
 
-Team check-in: Monday at 10 AM.
+Team check-in: Tuesday at 2 PM.
